@@ -6,7 +6,7 @@
 - 🌱 Data Science and Machine Learning enthusiastic 
 - 👯 Looking for opportunities in this domain
 - 🥅 Goals:  vision to see myself working professionally in this field
-- ⚡ Fun fact: You just have a Udemy certificate and you call yourself a data scientist! Dude you are funny 👀
+- ⚡ Fun fact: Statistics show that statistics cannot be trusted. 👀
 
 ### Connect with me:
 
